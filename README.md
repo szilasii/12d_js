@@ -1,3 +1,6 @@
-Macika
-macika2
-macika3
+
+Lacika
+lajcsi2
+Einstein
+more
+dzasnesz
